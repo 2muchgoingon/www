@@ -1,5 +1,5 @@
-# hello i go by the name denim or just 222
+**hello i go by the name denim or just 222**
 
-he/him pronouns pref, aroflux and bisexual
+<sup> he/him pronouns pref, aroflux and bisexual </sup>
 
-basic dni criteria
+<sup> basic dni criteria </sup> 
